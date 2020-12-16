@@ -1,2 +1,0 @@
-# BopaX
-Always Enjoy
